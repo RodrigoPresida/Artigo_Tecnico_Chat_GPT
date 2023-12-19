@@ -1,0 +1,1 @@
+# Artigo_Tecnico_Chat_GPT
